@@ -16,5 +16,5 @@ Com letras sentimentais e instrumentais que cativam, suas músicas tocam em assu
 - Tristeza;
 - Ânsia por dias melhores;
 - Decepção amorosa;
-- Ansiedade;
+- Ansiedade;\
 entre outros, sendo um prato cheio para os fãs de rock nacional que estão em busca de algo que possa estar fora do seu radar de músicas.
